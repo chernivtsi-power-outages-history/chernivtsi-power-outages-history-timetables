@@ -1,0 +1,1 @@
+# Chernivtsi power outages history: timetables
